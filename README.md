@@ -6,4 +6,4 @@ Developer, tech enthusiast and designer, with more than [8 years of experience](
 
 💼 [Linkedin](https://www.linkedin.com/in/sergiobehrends/)
 
-🐦 [Twitter](https://twitter.com/Blunk)
+𝕏 [X / Twitter](https://twitter.com/Blunk)
